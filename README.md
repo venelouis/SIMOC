@@ -1,7 +1,9 @@
 SIMOC - Singapore International Math Olympiad Challenge (Desafio Internacional da Olimpíada de Matemática de Singapura)
 
 🌟 Exciting News for SIMOC Participants! 🌟
+
 Dear SIMOC 2024 participants,
+
 We are thrilled to announce the release of our official training videos for the team events at the Singapore International Math Olympiad Challenge (SIMOC) 2024! 🎉
 These videos are designed to equip you with the essential strategies and insights to excel in the competition and enhance your mathematical prowess. Whether you're gearing up for Maths Warriors, Math Mastermind, or Mind Sports Challenge, these resources are invaluable for sharpening your skills.
 📽️ Here's what's in store:

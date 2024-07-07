@@ -24,7 +24,7 @@ Source: https://www.facebook.com/sgimcc/posts/pfbid0cwmhyLzn7yxeNWWmuTc9HoQqTaXs
 🌟 Ótimas notícias para os participantes da SIMOC! 🌟
 Queridos participantes da SIMOC 2024, 
 Estamos super animados em anunciar o lançamento dos nossos vídeos oficiais de treinamento para os eventos em equipe no Singapore International Math Olympiad Challenge (SIMOC) 2024! 🎉
-Esses vídeos foram feitos para te dotar das estratégias essenciais e insights para se destacar na competição e aprimorar suas habilidades matemáticas. Seja se você estiver se preparando para: Maths Warriors (Guerreiros das Matemáticas), um mestre das contas, ou enfrentando o desafio dos esportes mentais, esses recursos são inestimáveis para aprimorar suas habilidades. 
+Esses vídeos foram feitos para te dotar das estratégias essenciais e insights para se destacar na competição e aprimorar suas habilidades matemáticas. Seja se você estiver se preparando para: Maths Warriors (Guerreiros das Matemáticas), Math Mastermind (Mestre da Mente da Matemática), ou enfrentando o Mind Sports Challenge (Desafio dos Esportes Mentais), esses recursos são inestimáveis para aprimorar suas habilidades. 
 📽️ Aqui está o que te espera: 
 Vídeo 1: Guerreiros da Matemática - Regras (17:36 mins) https://youtu.be/bkkhtqZZAGg 
 Vídeo 2: Guerreiros da Matemática - Jogabilidade com estratégias vencedoras (14:20 mins) https://youtu.be/wpLKpR2HtKo
